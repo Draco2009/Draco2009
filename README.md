@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Draco2009
+- 👀 I’m interested in making discord bots and python programs
+- 🌱 I’m currently learning python and will learn js,html,css 
+- 📫 u can reach me through discord, my discord is 𝓧𝓮𝓷𝓸ッ
